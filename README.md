@@ -1,4 +1,4 @@
-# GPUVideo-android
+# GPUVideo-albertorosado466@gmail.com
 
 <img src="Logotype primary horizontal.png" width="60%" height="60%" />
 
